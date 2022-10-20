@@ -1,6 +1,6 @@
 # sobre mim
 
-- 🔭 atualmente estou trabalhando em cas ajudando minha mãe
+- 🔭 atualmente estou trabalhando em casa ajudando minha mãe
 - 🌱 atualmente estou aprendendo Agronomia e Capoeira
 - 👯 estou colaborando ajudando meu professor de capoeira
 - 🤔 procuro ajuda para ser uma pessoia melhor
