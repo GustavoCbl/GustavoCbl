@@ -7,5 +7,5 @@
 - 💬 não tenho nada a dizer sobre mim
 - 📫 de carro ou de avião
 - 😄 talarico
-- ⚡ Fun fact: ...
+- ⚡ capoeira é vida
 -->
