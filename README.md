@@ -6,6 +6,6 @@
 - 🤔 procuro ajuda para ser uma pessoa melhor
 - 💬 não tenho nada a dizer sobre mim
 - 📫 de carro ou de avião
-- 😄 talarico
+- 😄 bruxo do bailão
 - ⚡ capoeira é vida
 -->
