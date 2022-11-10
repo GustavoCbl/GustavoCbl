@@ -7,7 +7,7 @@
 - 💬 não tenho nada a dizer sobre mim
 - 📫 de carro ou de avião
 - 😄 bruxo do bailão
-- ⚡ capoeira é vida
+- ⚡ capoeira é vidah
 -->
 
 
